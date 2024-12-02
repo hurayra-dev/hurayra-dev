@@ -2,7 +2,7 @@
 - 👀 I’m interested in cubersecurity
 - 🌱 I’m currently learning AI
 - 💞️ I’m looking to collaborate on book
-- 📫 How to reach me friendly
+- 📫 How to reach me hurayramuslimov@gmail.com
 - ⚡ Fun fact: i'm uzbek
 
 <!---
